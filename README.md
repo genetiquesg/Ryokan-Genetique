@@ -1,5 +1,5 @@
 # Ryokan Genetique
-Ryokan Genetique Cat Boarding Hotel - [ryokangenetique.com](https://ryokangenetique.com)
+Ryokan Genetique Cat Boarding Service and Cat Hotel - [ryokangenetique.com](https://ryokangenetique.com)
 
 The best [cat hotel in Singapore](https://ryokangenetique.com/)
 
